@@ -6,7 +6,7 @@ keluar dan camilanmu jatuh ke bawah. Kredit sisa tetap tersimpan untuk
 pembelian berikutnya.
 
 Video penjelasan (60 detik):
-link menyusul setelah upload
+https://www.youtube.com/shorts/4sXb2D2RcRk
 
 ## Komponen
 
